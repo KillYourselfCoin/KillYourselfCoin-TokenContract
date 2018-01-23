@@ -1,0 +1,1 @@
+# KillYourselfCoin-TokenContract
